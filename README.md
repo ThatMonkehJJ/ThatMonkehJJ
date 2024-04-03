@@ -1,0 +1,6 @@
+- 👋 Hi, I’m JJ
+- 👀 I’m interested in Gorilla Tag
+- 🌱 I’m currently learning how to make gorilla tag custom maps
+- 📫 How to reach me: "thatmonkehjj" on discord
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I have spent all my life savings on a Gorilla Game :)
